@@ -1,7 +1,7 @@
 <img src="https://media.discordapp.net/attachments/1279467053685805180/1356749350239342592/file_0000000016dc51f89a7eabf85a76a938_conversation_id67ec5122-195c-8007-9485-1c292e8b6ef9message_ida5166bfa-1a3c-4351-9c25-ac3ef09cd949.webp?ex=67edb2cc&is=67ec614c&hm=ee3b917a442a950d0f8030cf1ecccbb08650da3115c200008f139cdc89d0cad7&" style="width: 100%; height: 200px; object-fit:contain;">
 
 
- >#### *Un talento oculto es un faro sin luz; solo al brillar encuentra su verdadero valor y propósito.* 
+ > *Un talento oculto es un faro sin luz; solo al brillar encuentra su verdadero valor y propósito.* 
 
 
 
